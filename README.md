@@ -1,0 +1,2 @@
+# Abdullox
+uyga vazifa
